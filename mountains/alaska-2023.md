@@ -8,7 +8,7 @@ Everything after that is a fog, at least up to the point at which I had my hands
 
 My brother - bless him - being the oldest was the son who received the first call. He and I haven't spoken much about that morning; most of it we experienced together - but I will forever be grateful for what he handled alone. 
 
-When I arrived, I knew it was my responsibility to see my father's body - not that I had any idea what that would mean. There is little I know about what my father would have wanted, but seeing his body - understanding his life - would have been his hope.
+When I arrived, I already knew my responsibility to myself was to see my father's body - not that I had any idea what that would momentarily mean. There is little I know about what my father would have wanted, but seeing his body - understanding his life - would have been his hope.
 
 "Do you want to see the body?"
 
