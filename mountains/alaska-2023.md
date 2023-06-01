@@ -16,13 +16,28 @@ My brother - bless him - being the oldest was the son who received the first cal
 
 I paused. Breathed. And went to see my father.
 
-My dad used to joke he wanted to say goodbye to the world holding a gin and tonic and watching the sunset from his balcony. What he really meant was - I think - that he wanted to die without knowing it was coming. 
+My dad used to joke he wanted to say goodbye to the world while holding a gin and tonic and watching the sunset from his balcony. What he really meant - I think at one level - was that he wanted to die without knowing it was coming and that he wanted a simple death. 
 
 Later that week, as I stood over my father as he lay in his coffin - chosen for its simplicity and resemblence to that of the monastics' - I held my son, nearly seven months old. I couldn't have done that alone. 
 
 Standing over my father, I tried to remember his hugs. Everyone didn't like my dad's hair - the caretaker had made it to neat; but I liked it - it reminded me of how my father's hair had looked at my wedding, of a picture I have of my wife hugging my father on that day. I didn't know what to do or say; all I could do was think to tidy his hair a bit - to move a small lock slightly out of place on his forehead and say, "Thanks, Dad."
 
 ## The Year Before
+
+It's 2023, now. May, to be precise. My father died 14 months ago. My first climb in over 18 months was 9 months ago - in September 2022. 
+
+On that climb, deep down (actually pretty close to the surface), I _hated_ that I was going climbing again - I remember driving at 7:30 AM to go pick up my climbing partner so we could go do something I didn't even really know if I wanted to do anymore: climbing. We were going to do some low-difficulty trad. climbing in the Flatirons, visible from Boulder, CO. 
+
+On the drive over, drinking sugar free Red Bull and eating a "continental breakfast" (stale bread and questionable fruit stuffed in my small day pack), I tried to get the stoke going - but it wasn't there. 
+
+"This is stupid. Why am I here?"
+
+During a red light - on the nearly empty, pre-rush hour Boulder street - I managed to get a selfie for the internet. Maybe _that_ would make me feel better: feigning excitement for other people. 
+
+
+
+
+
 
 ## 
 
