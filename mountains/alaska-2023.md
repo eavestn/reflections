@@ -1,6 +1,6 @@
 # Alaska 2023
 
-## Introduction
+## Death & Introduction
 
 To this day, I don't know how I knew to answer the phone. My phone was silent when I woke up - no vibrating, face down. I turned it over and my mom was calling. I picked up the phone knowing what was about to be said. On the other end, my mom: "Thomas, I have some bad news. Daddy's died in the night. I'm so sorry." 
 
