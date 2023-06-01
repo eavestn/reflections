@@ -16,7 +16,7 @@ There is little I know about what my father would have wanted, but seeing his bo
 
 "Most people I have spoken to regret not seeing the body."
 
-I paused. Breathed. And went to see my father; the same father who's face glowed in the orange Savannah sun when he told me I had courage nearly a decade ago.
+I paused. Breathed. And went to see my father; the same father who's face over a decade ago glowed orange under Savannah's setting sun as he told me I had courage.
 
 My dad used to joke he wanted to say goodbye to the world while holding a gin and tonic and watching the sunset from his balcony. What he really meant - I think at one level - was that he wanted to die without knowing it was coming and that he wanted a simple death. 
 
