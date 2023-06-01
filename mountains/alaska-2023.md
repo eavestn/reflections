@@ -34,6 +34,8 @@ On the drive over, drinking sugar free Red Bull and eating a "continental breakf
 
 During a red light - on the nearly empty, pre-rush hour Boulder street - I managed to get a selfie for the internet. Maybe _that_ would make me feel better: feigning excitement for other people. 
 
+As I pulled up to my partner's house, I started to forget that I didn't want to be there. As he stepped out of the house - cleanly shaven for the first time in the seven years that we've been climbing together - holding two cups (one open-topped glass with a smoothy and a thermos of coffee without a lid), I forgot everything. 
+
 
 
 
