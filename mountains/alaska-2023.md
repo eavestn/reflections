@@ -6,9 +6,9 @@ I don't know how I knew to answer the phone. I was asleep. My phone was silent w
 
 Everything after that is a fog, at least up to the point at which I had my hands on the steering wheel, getting onto the toll road. I remember driving at an early hour in March - closer to midnight than not - down Powhite Parkway. I think I remember the trees - black against a dark, light-polluted, purple sky; the leafelss trees were not quite ready to announce Spring here in Central Virginia. My parents' - my mom's - place above the James, below the fall line where the river becomes tidal, is about thirty minutes Northeast by car.
 
-My brother - bless him - being the oldest was the son who received the first call. He and I haven't spoken much about that morning; most of it we experienced together - but I will forever be grateful for what he handled alone. When I arrived, I knew it was my responsibility to see my father's body - not that I had any idea what that would mean.
+My brother - bless him - being the oldest was the son who received the first call. He and I haven't spoken much about that morning; most of it we experienced together - but I will forever be grateful for what he handled alone. 
 
-There is little I know about what my father would have wanted, but seeing his body - understanding his life - would have been his hope.
+When I arrived, I knew it was my responsibility to see my father's body - not that I had any idea what that would mean. There is little I know about what my father would have wanted, but seeing his body - understanding his life - would have been his hope.
 
 "Do you want to see the body?"
 
