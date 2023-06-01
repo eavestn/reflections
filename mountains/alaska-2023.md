@@ -6,7 +6,9 @@ I don't know how I knew to answer the phone. I was asleep. My phone was silent w
 
 Everything after that is a fog, at least up to the point at which I had my hands on the steering wheel, getting onto the toll road. I remember driving at an early hour in March - closer to midnight than not - down Powhite Parkway. I think I remember the trees - black against a dark, light-polluted, purple sky; the leafelss trees were not quite ready to announce Spring here in Central Virginia. My parents' - my mom's - place above the James, below the fall line where the river becomes tidal, is about thirty minutes Northeast by car.
 
-My brother - bless him - being the oldest was the son who received the first call. He and I haven't spoken much about that morning; most of it we experienced together - but I will forever be grateful for what he handled alone. When I arrived, I knew it was my responsibility to see my father's body - not that I had any idea what that would mean. 
+My brother - bless him - being the oldest was the son who received the first call. He and I haven't spoken much about that morning; most of it we experienced together - but I will forever be grateful for what he handled alone. When I arrived, I knew it was my responsibility to see my father's body - not that I had any idea what that would mean.
+
+There is little I know about what my father would have wanted, but seeing his body - understanding his life - would have been his hope.
 
 "Do you want to see the body?"
 
@@ -14,7 +16,7 @@ My brother - bless him - being the oldest was the son who received the first cal
 
 "Most people I have spoken to regret not seeing the body."
 
-I paused. Breathed. And went to see my father.
+I paused. Breathed. And went to see my father; the same father who's face glowed in the orange Savannah sun when he told me I had courage nearly a decade ago.
 
 My dad used to joke he wanted to say goodbye to the world while holding a gin and tonic and watching the sunset from his balcony. What he really meant - I think at one level - was that he wanted to die without knowing it was coming and that he wanted a simple death. 
 
