@@ -4,7 +4,7 @@
 
 I don't know how I knew to answer the phone. I was asleep. My phone was silent when I woke up - no vibrating, face down. I turned it over and my mom was calling. I answered the phone knowing what was about to be said. My dad now in his late seventies had corrective heart surgery only a few days before. On the other end of the phone, my mom: "Thomas, I have some bad news. Daddy's died in the night." 
 
-Everything after that is a fog, at least up to the point at which I had my hands on the steering wheel, getting onto the toll road. I remember driving at an early hour in March - closer to midnight than not - down Powhite Parkway. I think I remember the trees - black against a light-polluted, dark purple sky; the leafless trees were not quite ready to announce Spring here in Central Virginia. My parents' - my mom's - place above the James, below the fall line where the river becomes tidal, is about thirty minutes Northeast by car.
+Everything after that is a fog, at least up to the point at which I had my hands on the steering wheel of my truck, getting onto the toll road. I remember driving at an early hour in March - closer to midnight than not - down Powhite Parkway. I think I remember the trees - black against a light-polluted, dark purple sky; the leafless trees were not quite ready to announce Spring here in Central Virginia. My parents' - my mom's - place above the James, below the fall line where the river becomes tidal, is about thirty minutes Northeast by car.
 
 My brother - bless him - being the oldest was the son who received the first call. He and I haven't spoken much about that morning; most of it we experienced together - but I will forever be grateful for what he handled alone. 
 
