@@ -26,7 +26,7 @@ I tried to remember his hugs. Everyone else didn't like my dad's hair - the care
 
 ## The Year Before
 
-It's 2023, now. May, to be precise. My father died 14 months ago. My first climb in over 18 months was 9 months ago - in September 2022. 
+It's 2023, now. May, to be precise. My father died 14 months ago. My first climb in over 18 months was 10 months ago - in early August 2022. 
 
 On that climb, deep down (actually pretty close to the surface), I _hated_ that I was going climbing again - I remember driving at 7:30 AM to go pick up my climbing partner so we could go do something I didn't even really know if I wanted to do anymore: climbing. We were going to do some low-difficulty trad. climbing in the Flatirons, visible from Boulder, CO. 
 
