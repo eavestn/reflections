@@ -16,13 +16,13 @@ When I arrived, I knew it was my responsibility to see my father's body - not th
 
 "Most people I have spoken to regret not seeing the body."
 
-I paused. Breathed. And went to see my father; the same father who's face over a decade ago glowed orange under Savannah's setting sun as he told me I had courage.
+I paused. Breathed. And went to see my father.
 
-My dad used to joke he wanted to say goodbye to the world while holding a gin and tonic and watching the sunset from his balcony. What he really meant - I think at one level - was that he wanted to die without knowing it was coming and that he wanted a simple death. 
+My dad used to joke he wanted to say goodbye to the world while holding a gin and tonic and watching the sunset from his balcony. What he really meant - I think at one level - was that he wanted he wanted a simple death. 
 
 Later that week, as I stood over my father as he lay in his coffin - chosen for its simplicity and resemblence to that of the monastics' - I held my son, nearly seven months old. I couldn't have done that alone. 
 
-Standing over my father, I tried to remember his hugs. Everyone didn't like my dad's hair - the caretaker had made it to neat; but I liked it - it reminded me of how my father's hair had looked at my wedding, of a picture I have of my wife hugging my father on that day. I didn't know what to do or say; all I could do was think to tidy his hair a bit - to move a small lock slightly out of place on his forehead and say, "Thanks, Dad."
+I tried to remember his hugs. Everyone didn't like my dad's hair - the caretaker had made it to neat; but I liked it - it reminded me of how my father's hair had looked at my wedding, of a picture I have of my wife hugging my father on that day. I didn't know what to do or say; all I could do was think to tidy his hair a bit - to move a small lock slightly out of place on his forehead and say, "Thanks, Dad."
 
 ## The Year Before
 
