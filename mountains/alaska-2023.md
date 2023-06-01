@@ -4,9 +4,9 @@
 
 When they find ancient bodies - bodies from all socioeconomic and demographic backgrounds - they're sometimes found with things: dead horses, dead wives, dead servants, gold, material cultural items, vehicles, pottery, the list is both sometimes odd and nearly endless. And I'd always thought, "How absolutely stupid."
 
-Then, my father died - suddenly and in many ways unexpectedly.
+Then, when my father died - suddenly and in many ways unexpectedly -
 
-When my father died, I understood everything.
+I understood everything.
 
 
 I don't know how I knew to answer the phone. I was asleep. My phone was silent when I woke up - no vibrating, face down. I turned it over and my mom was calling. I answered the phone knowing what was about to be said. My dad now in his late seventies had corrective heart surgery only a few days before. On the other end of the phone, my mom: "Thomas, I have some bad news. Daddy's died in the night." 
