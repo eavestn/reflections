@@ -30,7 +30,7 @@ On that climb, deep down (actually pretty close to the surface), I _hated_ that 
 
 On the drive over, drinking sugar free Red Bull and eating a "continental breakfast" (stale bread and questionable fruit stuffed in my small day pack), I tried to get the stoke going - but it wasn't there. 
 
-"This is stupid. Why am I here?"
+"This is stupid. Why am I here?" I missed my family: my son, my wife. I missed my friends.
 
 During a red light - on the nearly empty, pre-rush hour Boulder street - I managed to get a selfie for the internet. Maybe _that_ would make me feel better: feigning excitement for other people. 
 
