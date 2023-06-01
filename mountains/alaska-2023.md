@@ -20,9 +20,9 @@ I paused. Breathed. And went to see my father.
 
 My dad used to joke he wanted to say goodbye to the world while holding a gin and tonic and watching the sunset from his balcony. What he really meant - I think at one level - was that he wanted he wanted a simple death. 
 
-Later that week, as I stood over my father as he lay in his coffin - chosen for its simplicity and resemblence to that of the monastics' - I held my son, nearly seven months old. I couldn't have done that alone. 
+Later that week, as I stood over my father as he lay in his coffin - chosen for its simplicity and resemblence to that of the monastics' - I held my son, then early seven months old. I couldn't have done that without Simon.
 
-I tried to remember his hugs. Everyone else didn't like my dad's hair - the caretaker had made it too neat; but I liked it - it reminded me of how my father's hair had looked at my wedding, of a picture I have of my wife hugging my father on that day. I didn't know what to do or say; all I could do was think to tidy his hair a bit - to move a small lock slightly out of place on his forehead and say, "Thanks, Dad."
+I tried to remember my dad's hugs. Everyone else didn't like my dad's hair - the caretaker had made it too neat; but I liked it - it reminded me of how my father's hair had looked at my wedding, of a picture I have of my wife hugging my father on that day. I didn't know what to do or say; all I could do was think to tidy his hair a bit - to move a small lock slightly out of place on his forehead and say, "Thanks, Dad."
 
 ## II. Back Alleys In Richmond
 
