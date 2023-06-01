@@ -24,7 +24,7 @@ Later that week, as I stood over my father as he lay in his coffin - chosen for 
 
 I tried to remember his hugs. Everyone else didn't like my dad's hair - the caretaker had made it too neat; but I liked it - it reminded me of how my father's hair had looked at my wedding, of a picture I have of my wife hugging my father on that day. I didn't know what to do or say; all I could do was think to tidy his hair a bit - to move a small lock slightly out of place on his forehead and say, "Thanks, Dad."
 
-## The Year Before
+## II. The Year Before The Climb
 
 It's 2023, now. May, to be precise. My father died 14 months ago. My first climb in over 18 months was 10 months ago - in early August 2022. 
 
