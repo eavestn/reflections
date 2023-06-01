@@ -22,7 +22,7 @@ My dad used to joke he wanted to say goodbye to the world while holding a gin an
 
 Later that week, as I stood over my father as he lay in his coffin - chosen for its simplicity and resemblence to that of the monastics' - I held my son, then nearly seven months old. I couldn't have done that without Simon.
 
-Standing there - watching my dad's face - I tried to remember my dad. Everyone else didn't like my dad's hair (on its bigger days, it gave Einstein's hair a run for its money) - the caretaker had made it too neat; but I liked it, it calmed me - it reminded me of how my father's hair had looked at my wedding, of a picture I have of my wife hugging my father on that day. I didn't know what to do or say; all I could do was think to tidy his hair a bit - to move a small lock slightly out of place on his forehead and say, "Thanks, Dad."
+Standing there - watching my dad's face - I tried to remember my dad. Everyone else didn't like my dad's hair (on its bigger days, it gave Einstein's hair a run for its money) - the caretaker had made it too neat, they thoughg; but I liked the neatness, it reminded me of how my father's hair had looked at my wedding, of a picture I have of my wife hugging my father on that day. I didn't know what to do or say; all I could do was think to tidy his hair a bit - to move a small lock slightly out of place on his forehead and say, "Thanks, Dad."
 
 ## II. Back Alleys In Richmond
 
