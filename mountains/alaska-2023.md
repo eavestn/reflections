@@ -1,5 +1,9 @@
 # Alaska 2023
 
+- gentleness 
+- what i wanted my dad to have had, can no longer have, and have forever.
+- blanket
+
 ## I. Death
 
 When they find ancient bodies - bodies from all socioeconomic and demographic backgrounds - they're sometimes found with things: dead horses, dead wives, dead servants, gold, material cultural items, vehicles, pottery, the list is both sometimes odd and nearly endless. And I'd always thought, "How absolutely stupid."
