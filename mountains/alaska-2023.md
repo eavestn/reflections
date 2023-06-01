@@ -14,7 +14,7 @@ When I arrived, I knew it was my responsibility to see my father's body - not th
 
 "I don't know."
 
-"Most people I have spoken to regret not seeing the body, but it _has_ to be your choice."
+"Most people I have spoken to regret not seeing the body."
 
 I paused. Breathed. And went to see my father; the same father who's face over a decade ago glowed orange under Savannah's setting sun as he told me I had courage.
 
