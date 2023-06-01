@@ -22,7 +22,9 @@ Later that week, as I stood over my father as he lay in his coffin - chosen for 
 
 Standing over my father, I tried to remember his hugs. Everyone didn't like my dad's hair - the caretaker had made it to neat; but I liked it - it reminded me of how my father's hair had looked at my wedding, of a picture I have of my wife hugging my father on that day. I didn't know what to do or say; all I could do was think to tidy his hair a bit - to move a small lock slightly out of place on his forehead and say, "Thanks, Dad."
 
+## The Year Before
 
+## 
 
 We arrived in Alaska in early April to weather that even locals were upset by; typically, at that time of the year, the roads have started mudding
 up as the snow from the winter reaches its latter stages of melting out. This year, Talkeetna got pummeled. The quaint, fronteir's edge town - known
