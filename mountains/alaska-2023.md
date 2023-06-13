@@ -2,13 +2,13 @@
 
 ## I. Death
 
-When they find ancient bodies, they sometimes find them with things: horses, wives, servants, gold, vehicles, pottery - the list is both sometimes odd and very nearly endless. And I'd always thought, "How absolutely stupid." 
+When they find ancient bodies, they sometimes find them with things: horses, wives, servants, gold, vehicles, pottery - the list is sometimes odd and very nearly endless. And I'd always thought, "How absolutely stupid." 
 
-Then, when my father suddenly and in many ways unexpectedly died, I understood everything.
+Then, when my father died, I understood everything.
 
-I was asleep. I don't know how I knew to answer the phone. My phone was silent when I lifted my head off my pillow - no vibrating, no light, face down. For no reason - maybe to check the time - I turned my phone over; my mom was calling. My dad, now in his late seventies, had had corrective heart surgery only a few days before. I answered the phone already knowing what was about to be said. On the other end of the phone, my mom: "Thomas, I have some bad news. Daddy's died in the night." 
+I was asleep. My phone was silent when I lifted my head off my pillow - no vibrating, no light, face down. For no reason - maybe to check the time - I turned my phone over; my mom was calling. My dad, now in his late seventies, had had corrective heart surgery only a few days before. I answered the phone already knowing what was about to be said. On the other end of the phone, my mom: "Thomas, I have some bad news. Daddy's died in the night." 
 
-Everything after that is a fog; everything, at least up to the point at which I had my hands on my truck's steering wheel, getting onto the toll road, seems now at best to have been automatic. I remember driving at an early hour that day in early March - closer to midnight than not - down Powhite Parkway. I remember trees - black against a light-polluted purple sky - not quite ready to announce Spring. My parents' - my mom's - place above the James, below the fall line where the river becomes tidal, is about thirty minutes Northeast by car.
+Everything after that is a fog; at least up to the point at which I had my hands on my truck's steering wheel, getting onto the toll road, everything seems now to have been at best automatic. I remember driving at an early hour that day in March - closer to midnight than not - down Powhite Parkway. I remember still-winter trees - black against a light-polluted purple sky lining the road. My parents' - my mom's - place above the James, below the fall line where the river becomes tidal, is about thirty minutes Northeast by car.
 
 "Do you want to see the body?"
 
@@ -18,11 +18,11 @@ Everything after that is a fog; everything, at least up to the point at which I 
 
 I paused. Breathed. And went to see my father.
  
-Later that week, as I stood over my father, watching my dad's face as he lay in his coffin - chosen for its simplicity and resemblence to that of the monastics' - I held my son, then nearly seven months old. Standing there, I tried to remember my dad. No one else liked my dad's hair - the caretaker had made it too neat; but I liked the neatness. His hair reminded me of my father at my wedding, the picture I have of my wife hugging my happy father on that day. 
+Later that week, as I stood over my father, watching my dad's face as he lay in his coffin - chosen for its simplicity and resemblence to that of the monastics' - I held my son, then nearly seven months old. Standing there, I tried to remember my dad. No one else liked my dad's hair; but I liked the neatness. His hair reminded me of my father at my wedding, the picture I have of my wife hugging my happy father on that day. 
 
-My family brought things for my father to have with him; I can't remember whether I had intentionally brought anything, but - in that moment - I knew the thing my father needed - the thing I needed him to have, the thing I could no longer share, the thing I needed him to have forever. We found one of Simon's old swaddles, now used as a light blanket to keep him warm, and tucked it out of sight, by his feet. 
+My family brought things for my father to have with him; I can't remember whether I had intentionally brought anything, but - in that moment - the thing I needed him to have, the thing I could no longer share, the thing I needed him to have forever. We found one of Simon's old swaddles, now used as a light blanket to keep him warm, and tucked it out of sight by his feet. 
 
-I didn't know what to do or say; all I could do was think to tidy his hair a bit - to move a small lock slightly out of place on his forehead and say, "Thanks, Dad."
+A bit later and alone with him, I didn't know what to do or say; all I could do was think to tidy his hair - to move a small lock slightly out of place on his forehead and say, "Thanks, Dad."
 
 
 
