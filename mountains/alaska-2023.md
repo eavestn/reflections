@@ -8,7 +8,7 @@ Then, when my father died, I understood everything.
 
 My phone was silent when I lifted my head off my pillow - no vibrating, no light, face down. For no reason - maybe to check the time - I turned my phone over; my mom was calling. My dad, now in his late seventies, had had corrective heart surgery only a few days before. I answered the phone already knowing what was about to be said. On the other end of the phone, my mom: "Thomas, I have some bad news. Daddy's died in the night." 
 
-Everything after that is a fog; at least up to the point at which I had my hands on my truck's steering wheel, getting onto the toll road, everything seems to have been at best automatic. I remember driving at an early hour that day in March - closer to midnight than not - down Powhite Parkway. I remember still-winter trees lining the road - black against a light-polluted purple sky. My parents' - my mom's - place above the James, below the fall line where the river becomes tidal, is about thirty minutes Northeast by car.
+Everything after that is a fog; at least up to the point at which I had my hands on my truck's steering wheel, getting onto the toll road. I remember driving at an early hour that day in March - closer to midnight than not - down Powhite Parkway. I remember still-winter trees lining the road - black against a light-polluted purple sky. My parents' - my mom's - place above the James, below the fall line where the river becomes tidal, is about thirty minutes Northeast by car.
 
 "Do you want to see the body?"
 
