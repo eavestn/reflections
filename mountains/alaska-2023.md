@@ -1,22 +1,14 @@
 # Alaska 2023
 
-- gentleness 
-- what i wanted my dad to have had, can no longer have, and have forever.
-- blanket
-
 ## I. Death
 
-When they find ancient bodies - bodies from all socioeconomic and demographic backgrounds - they're sometimes found with things: dead horses, dead wives, dead servants, gold, material cultural items, vehicles, pottery - the list is both sometimes odd and nearly endless. And I'd always thought, "How absolutely stupid."
+When they find ancient bodies, they sometimes find them with things: horses, wives, servants, gold, vehicles, pottery - the list is both sometimes odd and very nearly endless. And I'd always thought, "How absolutely stupid." 
 
-Then, when my father died - suddenly and in many ways unexpectedly - I understood everything.
+Then, when my father suddenly and in many ways unexpectedly died, I understood everything.
 
-I was asleep. I don't know how I knew to answer the phone. My phone was silent when I suddenly lifted my head from my pillow - no vibrating, no light, face down. I turned my phone over; my mom was calling. I answered the phone already knowing what was about to be said. My dad, now in his late seventies, had had corrective heart surgery only a few days before. On the other end of the phone, my mom: "Thomas, I have some bad news. Daddy's died in the night." 
+I was asleep. I don't know how I knew to answer the phone. My phone was silent when I lifted my head off my pillow - no vibrating, no light, face down. For no reason - maybe to check the time - I turned my phone over; my mom was calling. My dad, now in his late seventies, had had corrective heart surgery only a few days before. I answered the phone already knowing what was about to be said. On the other end of the phone, my mom: "Thomas, I have some bad news. Daddy's died in the night." 
 
-Everything after that is like a fog (though I'm sure if I chose to I could remember every minutae); but everything, at least up to the point at which I had my hands on the steering wheel of my truck, getting onto the toll road, seems now at best automatic. I remember driving at an early hour in March - closer to midnight than not - down Powhite Parkway. I think I remember the trees - black against a light-polluted, dark purple sky; the leafless trees were not quite ready to announce Spring. My parents' - my mom's - place above the James, below the fall line where the river becomes tidal, is about thirty minutes Northeast by car.
-
-My brother - bless him - being the oldest was the son who received the first call. He and I haven't spoken much about that morning; most of it we experienced together - but I will forever be grateful for what he handled alone. 
-
-When I arrived, I already knew my responsibility to myself was to see my father's body - not that I had any idea what that then would momentarily mean. There is little I know about what my father would have wanted, but seeing his body - understanding his life - would have been his hope.
+Everything after that is a fog; everything, at least up to the point at which I had my hands on my truck's steering wheel, getting onto the toll road, seems now at best to have been automatic. I remember driving at an early hour that day in early March - closer to midnight than not - down Powhite Parkway. I remember trees - black against a light-polluted purple sky - not quite ready to announce Spring. My parents' - my mom's - place above the James, below the fall line where the river becomes tidal, is about thirty minutes Northeast by car.
 
 "Do you want to see the body?"
 
@@ -25,12 +17,21 @@ When I arrived, I already knew my responsibility to myself was to see my father'
 "Most people I have spoken to regret not seeing the body."
 
 I paused. Breathed. And went to see my father.
+ 
+Later that week, as I stood over my father, watching my dad's face as he lay in his coffin - chosen for its simplicity and resemblence to that of the monastics' - I held my son, then nearly seven months old. Standing there, I tried to remember my dad. No one else liked my dad's hair - the caretaker had made it too neat; but I liked the neatness. His hair reminded me of my father at my wedding, the picture I have of my wife hugging my happy father on that day. 
 
-My dad used to joke he wanted to say goodbye to the world while holding a gin and tonic and watching the sunset from his balcony. What he really meant - I think at one level - was that he wanted he wanted a simple death. 
+My family brought things for my father to have with him; I can't remember whether I had intentionally brought anything, but - in that moment - I knew the thing my father needed - the thing I needed him to have, the thing I could no longer share, the thing I needed him to have forever. We found one of Simon's old swaddles, now used as a light blanket to keep him warm, and tucked it out of sight, by his feet. 
 
-Later that week, as I stood over my father as he lay in his coffin - chosen for its simplicity and resemblence to that of the monastics' - I held my son, then nearly seven months old. I couldn't have done that without Simon.
+I didn't know what to do or say; all I could do was think to tidy his hair a bit - to move a small lock slightly out of place on his forehead and say, "Thanks, Dad."
 
-Standing there - watching my dad's face - I tried to remember my dad. Everyone else didn't like my dad's hair (on its bigger days, it gave Einstein's hair a run for its money) - the caretaker had made it too neat, they thoughg; but I liked the neatness, it reminded me of how my father's hair had looked at my wedding, of a picture I have of my wife hugging my father on that day. I didn't know what to do or say; all I could do was think to tidy his hair a bit - to move a small lock slightly out of place on his forehead and say, "Thanks, Dad."
+
+
+
+
+
+
+
+
 
 ## II. Back Alleys In Richmond
 
@@ -51,10 +52,6 @@ On the drive over, drinking sugar free Red Bull and eating a "continental breakf
 During a red light - on the nearly empty, pre-rush hour Boulder street - I managed to get a selfie for the internet. Maybe _that_ would make me feel better: feigning excitement for other people. 
 
 As I pulled up to my partner's house, I started to forget that I didn't want to be there. As he stepped out of the house - cleanly shaven for the first time in the seven years that we've been climbing together - holding two cups (one open-topped glass with a smoothy and a thermos of coffee without a lid), I forgot everything. 
-
-
-
-
 
 
 ## 
