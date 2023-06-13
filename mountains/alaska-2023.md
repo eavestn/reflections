@@ -20,7 +20,7 @@ I paused. Breathed. And went to see my father.
  
 Later that week, as I stood over my father, watching my dad's face as he lay in his coffin - chosen for its simplicity and resemblence to that of the monastics' - I held my son, then nearly seven months old. Standing there, I tried to remember my dad. No one else liked my dad's hair; but I liked the neatness. His hair reminded me of my father at my wedding, the picture I have of my wife hugging my happy father on that day. 
 
-My family brought things for my father to have with him; I can't remember whether I had intentionally brought anything, but - in that moment - the thing I needed him to have, the thing I could no longer share, the thing I needed him to have forever. We found one of Simon's old swaddles, now used as a light blanket to keep him warm, and tucked it out of sight by his feet. 
+My family brought things for my father to have with him; I can't remember whether I had intentionally brought anything, but - in that moment - the thing I needed him to have was the thing I could no longer share, the thing I needed him to have forever. We found one of Simon's old swaddles, now used as a light blanket to keep him warm, and tucked it out of sight by his feet. 
 
 A bit later and alone with him, I didn't know what to do or say; all I could do was think to tidy his hair - to move a small lock slightly out of place on his forehead and say, "Thanks, Dad."
 
